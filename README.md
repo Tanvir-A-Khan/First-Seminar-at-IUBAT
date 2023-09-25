@@ -1,2 +1,2 @@
-# First-Seminar-at-IUBAT
-Seminar on- Student Opportunities in International Program
+# Seminar on- Student Opportunities in International Program
+My-First-Seminar-at-IUBAT
